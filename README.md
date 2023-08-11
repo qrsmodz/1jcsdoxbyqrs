@@ -20,3 +20,7 @@ Father: https://imgur.com/a/Ub7luEE
 HIS SPOTIFY PLAYLIST: https://imgur.com/a/tyAsH2s
 
 Nigga is just mad annoying so i leaked all his shit + hes a logger :P
+
+
+
+join up discord.gg/lurkedmodz
